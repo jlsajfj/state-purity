@@ -32,7 +32,7 @@ It's not perfect, and weights were assigned at my discretion, so none of this is
 - Seen or read pornographic material
 - Massaged or been massaged sensually
 - Purchased contraceptives
-- Spent the night with a member of the perferred sex
+- Spent the night with a member of the preferred sex
 - Ingested alcohol in a non-religious context
 - Played a drinking game
 - Been drunk
@@ -55,8 +55,8 @@ It's not perfect, and weights were assigned at my discretion, so none of this is
 - Masturbated to a picture or video
 - Been caught masturbating
 - Gone through the motions of intercourse while fully dressed
-- Undressed or been undressed by a member of the perferred sex
-- Showered with a member of the perferred sex
+- Undressed or been undressed by a member of the preferred sex
+- Showered with a member of the preferred sex
 - Fondled or had your butt cheeks fondled
 - Fondled or had your breasts fondled
 - Fondled or had your genitals fondled
